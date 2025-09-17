@@ -7,7 +7,7 @@
   
   *Cursiva*
   
-  'Resalto'
+  `Resalto`
   
  ''' bash
   #!/bin/bash
