@@ -1,0 +1,1 @@
+![](https://imgs.search.brave.com/3iuZhseUR-P18z-gQrkv04A9Z95AQjAoP9a-LY0NuHw/rs:fit:860:0:0:0/g:ce/aHR0cHM6Ly9zMS5h/YmNzdGF0aWNzLmNv/bS9tZWRpYS9lc3Bh/bmEvMjAyMS8wNS8w/NC8xNDE2NjEwNzQw/LWtjTi0tMTI0OHg2/OThAYWJjLmpwZw)
